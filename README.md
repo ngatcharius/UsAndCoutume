@@ -8,7 +8,7 @@ Quelques Exemples
 - Au nord du Cameroun, pour nourrir un enfant dont la maman est décédé à l'accouchement ils utilisent les noix de tigre.
 - Dans le littoral, une maman doit, très tôt le matin, retirer son caleçon pour masser les pieds de son enfant pour eviter à celui ci une malformation.
 - Au centre, il est coutume d'épouser une femme qui a déjà accouché d'un enfant même si vous n'êtes pas le géniteur du premier.
-- Toujours au nord, avant de donner son sein au nouveau né, la maman de presser son sain au sol si les fourmi viennent autour c'est que son lait est de bonne qualité.
+- Toujours au nord, avant de donner son sein au nouveau né, la maman doit presser son sein au sol si les fourmis viennent autour c'est que son lait est de bonne qualité.
 
 À faire
 -------
